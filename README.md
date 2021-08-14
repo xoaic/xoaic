@@ -1,0 +1,5 @@
+- 👋 Hi, I’m xoai chua cola!
+- 👀 I’m interested in technology and art
+- 🌱 I’m currently learning IT at Hanoi University
+- 💞️ I’m work on ONE XCC
+- 📫 Access my website to learn about me
