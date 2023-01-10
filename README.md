@@ -1,4 +1,4 @@
-# Xoai CC (Do Minh Vuong)
+# Xoai CC (Vuong Do)
 ### Web Developer
 
 I am a Fresher with 1 years of experience in Information Technology. I am skilled 
